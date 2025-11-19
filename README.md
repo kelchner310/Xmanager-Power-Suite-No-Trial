@@ -1,0 +1,1 @@
+# Xmanager-Power-Suite-No-Trial
